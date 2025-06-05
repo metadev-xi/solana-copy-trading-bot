@@ -197,6 +197,7 @@ Enhance your trading with professional-grade tools including Limit Orders, Dolla
 Need help? Reach out:
 - 📧 metaDevxi@gmail.com
 - 💬 @metaDevxi (Telegram)
+- 🌐 www.0xtech.org
 
 ---
 Ready to enhance your trading? Contact our support team to get started!
